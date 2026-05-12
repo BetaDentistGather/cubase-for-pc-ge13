@@ -1,4 +1,4 @@
-# 
+# Cubase for PC | Cubase for Windows updated Plugin: plugin-management & piano-roll offers the most advanced Cubase for PC | Cubase for Windows plugin, with plugin-management and
 
 
 
